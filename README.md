@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Python and HTML**
 
-- 📫 How to reach me **www.instagram.com/soulofshutterbug**
+- 📫 Reach me at **www.instagram.com/soulofshutterbug**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
